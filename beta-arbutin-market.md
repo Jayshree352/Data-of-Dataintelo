@@ -16,7 +16,7 @@ Beta arbutin, a glycosylated form of hydroquinone naturally derived from plants 
 
 Skincare products often feature beta arbutin in serum, cream, or lotion formulations. It may be paired with other antioxidants like vitamin C, niacinamide, or gentle exfoliants to enhance skin clarity. Common uses include addressing post-acne hyperpigmentation, sunspots, and dullness. Its versatility allows brands to offer products catered to both morning routines (paired with SPF) and nighttime renewal therapies.
 
-**Regional Acceptance and Market Distribution**
+**##Regional Acceptance and Market Distribution**
 
 As per Dataintelo’s analysis, “The regional distribution of the [Beta Arbutin Market](https://dataintelo.com/report/beta-arbutin-marke)
 
