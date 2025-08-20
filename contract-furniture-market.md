@@ -2,7 +2,7 @@
 
 Contract furniture plays a vital role in designing functional, durable, and aesthetically appealing spaces for offices, hotels, restaurants, and public areas. Unlike traditional furniture, it is specifically designed for commercial applications, prioritizing longevity, ergonomics, and style. Businesses are increasingly recognizing the value of investing in furniture that meets operational needs while enhancing the overall environment.
 
-According to Marketintelo, “The global [Contract Furniture](https://marketintelo.com/report/contract-furniture-market)size was valued at approximately USD 24.5 billion in 2024 and is projected to reach USD 42.1 billion by 2032, growing at a compound annual growth rate (CAGR) of 6.5% during the forecast period 2024–2032.”
+According to Marketintelo, “The global [Contract Furniture](https://marketintelo.com/report/contract-furniture-market) size was valued at approximately USD 24.5 billion in 2024 and is projected to reach USD 42.1 billion by 2032, growing at a compound annual growth rate (CAGR) of 6.5% during the forecast period 2024–2032.”
 
 **Read Full Research Study** – **https://marketintelo.com/report/contract-furniture-market**
 
