@@ -23,7 +23,7 @@ As per Dataintelo’s analysis, “The regional distribution of the [Beta Arbuti
 Europe’s prominence reflects both regulatory approvals and consumer familiarity with skin-brightening agents. Meanwhile, markets in Asia Pacific showcase growing demand, particularly where complex pigment concerns drive ingredient uptake. North America is steadily increasing its share, supported by skincare education and ingredient transparency trends.
 
 **### Advantages Over Conventional Brightening Agents**
-
+ 
 Beta arbutin presents several appealing benefits in skincare formulations:
 
 Milder and more stable than hydroquinone, making it suitable for long-term use.
