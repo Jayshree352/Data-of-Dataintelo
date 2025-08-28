@@ -48,7 +48,7 @@ Technological advancements in extrusion processes, resin formulations, and coati
 
 Agricultural applications represent a critical use case for polyethylene films. Greenhouse films help optimize crop yields by regulating temperature and light transmission. Mulch films suppress weeds, conserve soil moisture, and improve crop quality. Biodegradable agricultural films are being developed to reduce plastic waste, offering farmers effective solutions without long-term environmental burdens. With increasing pressure on global food systems, polyethylene films play a vital role in sustainable farming practices.
 
-Construction and Industrial Applications
+**Construction and Industrial Applications**
 
 Beyond packaging and agriculture, polyethylene films are integral to construction and industrial sectors. They serve as vapor barriers, preventing moisture infiltration in building foundations and insulation systems. In industrial contexts, films are used for pallet wrapping, equipment protection, and surface coverings during renovation projects. Their adaptability, combined with cost-efficiency, makes them essential across these high-demand environments.
 
