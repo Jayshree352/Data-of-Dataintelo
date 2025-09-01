@@ -104,5 +104,7 @@ Contact Us
 
 Market Intelo
 Email: sales@marketintelo.com
+
 Phone: +1 909 414 1393
+
 Website: [www.marketintelo.com](https://marketintelo.com/)
