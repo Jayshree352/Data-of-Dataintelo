@@ -89,6 +89,7 @@ MarketIntelo is a trusted market research and consulting firm, dedicated to deli
 
 Market Intelo
 Email: sales@marketintelo.com
+
 Website: https://marketintelo.com
 
 Phone: +1 909 414 1393
