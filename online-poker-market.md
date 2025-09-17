@@ -5,7 +5,7 @@ The global [Online Poker Market](https://marketintelo.com/report/online-poker-ma
 
 Online poker platforms offer immersive gameplay, multiplayer features, and tournaments, attracting casual and professional players alike. The legalization of online gambling in several countries, coupled with innovations in gaming software, is driving market expansion globally.
 
-**Get Sample Report of Online Poker Market @ https://marketintelo.com/request-sample/**
+**Get Sample Report of Online Poker Market @ https://marketintelo.com/request-sample/39740**
 
 ## Key Market Drivers
 **Rising Mobile Gaming Adoption**
@@ -24,7 +24,7 @@ Integration of e-wallets, credit/debit cards, and cryptocurrencies allows seamle
 
 Artificial intelligence, live dealer systems, and VR-enabled poker experiences are improving gameplay quality, attracting new users, and retaining existing ones, thereby expanding the market.
 
-**Get Sample Report of Online Poker Market @ https://marketintelo.com/request-sample/**
+**Get Sample Report of Online Poker Market @ https://marketintelo.com/request-sample/39740**
 
 ### Market Segmentation
 **By Game Type**
